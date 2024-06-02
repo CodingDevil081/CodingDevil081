@@ -16,9 +16,8 @@
   
 - 📚 Learning and growing every day
 
-- 📫 Feel free to reach me out **[Linkedin](https://www.linkedin.com/in/onkarmendhapurkar/)**
+- 📫 Feel free to reach me out **[Linkedin](https://www.linkedin.com/in/yuvraj-inamdar-793470289/)**
 <!--Intro end-->
-- 📫 How to reach me **message me on [Linkedin](https://www.linkedin.com/in/yuvraj-inamdar-793470289/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
